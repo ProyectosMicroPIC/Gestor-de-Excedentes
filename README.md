@@ -2,4 +2,5 @@ Con este Gestor de Excedentes completamente DIY podrás derivar tus excedentes f
 
 En el vídeo te explico cómo está hecho y cómo funciona.
 
+https://youtu.be/Iet8Q6aDYok
 
